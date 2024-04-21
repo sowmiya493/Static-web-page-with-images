@@ -1,0 +1,1 @@
+# Static-web-page-with-images
